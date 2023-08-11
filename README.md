@@ -28,5 +28,5 @@
 
 ## Contact 
 * **Name:** Khaled Tarek
-* **Email:** [لGmail](khaledfox20201@gmail.com)  
-* **LinkedIn:** [LinkedIn]([https://www.linkedin.com/in/your-linkedin-profile/](https://www.linkedin.com/in/khaled-elbahnasy-403479203/)https://www.linkedin.com/in/khaled-elbahnasy-403479203/)
+* **Email:** [Gmail](khaledfox20201@gmail.com)  
+* **LinkedIn:** [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile/](https://www.linkedin.com/in/khaled-elbahnasy-403479203/)https://www.linkedin.com/in/khaled-elbahnasy-403479203/)
